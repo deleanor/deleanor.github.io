@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Name Change"
+title:  "My Name"
 categories: trans
 ---
 
