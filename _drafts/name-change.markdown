@@ -33,11 +33,11 @@ Last summer, I began attending a transfeminine support group. Because of the
 pandemic, it was on Zoom. Before logging in, I was terrified. Prior to joining
 the support group, as far as I know, I had never met another trans person. I was
 afraid my identity wasn't valid, that I wasn't a "real" trans person, that I
-couldn't possibly know what it meant to be trans because I have had what is by
-any objective measure a privileged life. There were so many thoughts, feelings,
-and fears I had to understand and conquer just to come out to myself that I
-hadn't yet spent a lot of time thinking about whether I was going to change my
-name, or, if I did, what it was going to be.
+couldn't possibly know what it meant to be trans because my experience was so
+limited. There were so many thoughts, feelings, and fears I had to understand
+and conquer just to come out to myself that I hadn't yet spent a lot of time
+thinking about whether I was going to change my name, or, if I did, what it was
+going to be.
 
 Now, joining the support group, was the first time I needed to introduce myself
 to anyone as the person I finally understood myself to be. Without the pandemic,
