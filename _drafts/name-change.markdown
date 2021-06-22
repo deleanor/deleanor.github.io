@@ -5,13 +5,12 @@ categories: trans
 ---
 
 My name change became official today. My legal name is now Eleanor Blanchard
-Dicharry. I want to say that I feel that my parents chose a wonderful name for a
-boy, and I often proudly told people how cool I thought they were for just
-making my name Will on my birth certificate. It is the only name that all of you
-knew to call me for so many special times in my life, and those memories,
-events, and experiences have made me the person I am today. I want you all to
-know that changing my name doesn't make any of that less important or less
-cherished.
+Dicharry. I want to say that I feel that my parents chose a wonderful name for
+me, and I often proudly told people how cool I thought they were for just making
+my name Will on my birth certificate. It is the only name that all of you knew
+to call me for so many special times in my life, and those memories, events, and
+experiences have made me the person I am today. I want you all to know that
+changing my name doesn't make any of that less important or less cherished.
 
 I honestly don't know for sure when I chose the name Eleanor, but I know that
 when I was around 11 or 12 years old, I read the name Tolkien gave the flowers
